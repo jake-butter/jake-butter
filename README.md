@@ -2,4 +2,4 @@
 
 📍  Tokyo, Japan
 
-🏫 BSc Computer Science - King's College London, MSc Computer Science - University of Tsukuba
+🏫 BSc Computer Science - King's College London, MEng Computer Science - University of Tsukuba
