@@ -1,6 +1,6 @@
 📛 Jake Butter
 
-📍  Tokyo, Japan
+📍  Miyagi, Japan
 
 🏫 BSc Computer Science - King's College London
 
